@@ -2,7 +2,7 @@
 - 👀 I’m interested in RemoteSensing
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on college
-- 📫 How to reach me 1278752637@qq。com
+- 📫 How to reach me 1278752637@qq.com
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
 
